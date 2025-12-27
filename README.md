@@ -1,1 +1,1 @@
-I'd like to connecting people through technology
+What is humanity?
