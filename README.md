@@ -1,1 +1,1 @@
-What is humanity?
+What is humanity in this era?
