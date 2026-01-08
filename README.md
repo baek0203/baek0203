@@ -1,1 +1,1 @@
-What is humanity in this era?
+Why not?
